@@ -1,2 +1,0 @@
-Jetta Golembiewski
-Chicago Bears
